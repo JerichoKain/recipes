@@ -9,6 +9,8 @@
  - 2 slices tomato
 
 ## Direction
+ - Place bacon in a heavy skillet. Cook over medium high heat until evenly brown. Drain on paper towels.
+ - Spread each slice of bread with mayonnaise. On one slice of toast, place the turkey and lettuce. Cover with a slice of toast, then the bacon and tomato. Top with last slice of toast.
 
 ## Citation
 http://allrecipes.com/recipe/lorraines-club-sandwich/
